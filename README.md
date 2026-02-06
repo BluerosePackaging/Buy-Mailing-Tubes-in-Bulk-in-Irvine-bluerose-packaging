@@ -132,5 +132,5 @@ Yes. We provide local supply and support throughout Irvine.
 
 ## Get Started with Mailing Tube Solutions
 
-If your business needs dependable shipping tubes, bluerose packaging is ready to support your operations. From [**buying mailing tubes in bulk**](https://www.bluerosepackaging.com/location/tustin/buy-wholesale-mailing-tubes-near-me-in-tustin/) to sourcing **wholesale cardboard mailing tubes** and **custom mailing tubes for shipping in Irvine**, we deliver solutions built for protection, efficiency, and bulk performance.
+If your business needs dependable shipping tubes, bluerose packaging is ready to support your operations. From [**buying mailing tubes in bulk**](https://www.bluerosepackaging.com/location/irvine/buy-wholesale-mailing-tubes-near-me-in-irvine/) to sourcing **wholesale cardboard mailing tubes** and **custom mailing tubes for shipping in Irvine**, we deliver solutions built for protection, efficiency, and bulk performance.
 
